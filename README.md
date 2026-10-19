@@ -1,0 +1,1 @@
+# LAB_CLIP_LLaVA_Full_Lab_Statement
